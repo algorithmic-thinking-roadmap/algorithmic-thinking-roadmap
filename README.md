@@ -8,3 +8,5 @@ Check this account weekly to receive more codes.
 Feel free to use them anytime and please tell your friends to join. 
 
 Good luck ;)
+
+P.S. Share your experience, sugesstions, etc. with us by: algorithmic.thinking.roadmap@gmail.com
